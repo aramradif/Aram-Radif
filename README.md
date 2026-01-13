@@ -15,4 +15,4 @@ Data Analyst with experience in:
 - 
 
 📫 Connect with me:
-- https://www.linkedin.com/in/aram-radif-711b96371/
+- https://www.linkedin.com/in/aramradif/
